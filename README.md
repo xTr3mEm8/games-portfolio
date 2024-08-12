@@ -79,8 +79,6 @@ Contact
 Feel free to reach out if you have any questions or feedback on my projects. I look forward to connecting with fellow game developers and enthusiasts!
 
 Discord Username: xtr3mem8
-Phone number: +40 0771026259
-Youtube: https://www.youtube.com/@Xtr3mE34
 
 
 Thank you for checking out my portfolio!
